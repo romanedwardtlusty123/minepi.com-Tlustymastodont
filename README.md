@@ -1,2 +1,2 @@
 # minepi.com/Tlustymastodont
-https://tlustymastodont.company.site
+https://tlustypi.company.site
